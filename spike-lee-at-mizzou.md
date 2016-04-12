@@ -1,23 +1,8 @@
 *Spike Lee master class for Mizzou J-School, at RJI April 4, 2016:*
 
---------
-(1:00 interviews, pacing, Michael)
-(3:00 Micheal, sell more than Thriller, 100M copies)
-(5:00 car crash)
-(6:30 black women, carnage, Lysistrata)
-(9:00 Have you seen the film? Lesson #1: You cannot step up to a mic and ask a question on a subject you don't know about. You're playing yourself. If you are to critique anything, you must have some knowledge of what you talking about. So to read something on Twitter...)   
-(12:00 Nick Cannon, rappers, never shot anybody, no bodies on him, acting, DeNiro didn't go on killing spree, artists get criticized)
-(14:40 don't like word controversy, stories I want to tell, I can't do Speilberg, what interests me, getting people to talk, self-genocide Chicago, Chi-Raq film Jun1-July9 356 murdered)
-(18:30 MJ film order: way record co. wanted, anniversary) 
-(19:30 choking Radio Raheem and Eric Garner)
-(21:00 Fort Green, gentrified, parents bought brownstone, can't afford: 3-4 generations, can't come in like Christopher Columbus)
 
 --------
-(25:00 How did you get to the place where you wanted to direct and produce? )
-(25:30 Never use the work "assume." People get fired in the film industry using that word. "Well, I assumed, I though that..." Nope. Delte that word: assume. Delete it.)
-
---------
-25:50 Growing up  had no idea I wanted to be a filmaker. I liked films. But I had no idea people made films.
+(25:50) Growing up  had no idea I wanted to be a filmaker. I liked films. But I had no idea people made films.
 
 We just went to the movie movie theatre. We go every Saturday, a double bill. We would get there when it opens. And we would stay till our mothers drag us out of the theatre.
 
@@ -120,3 +105,18 @@ Mr. Bill Lee & Mrs. Jacquelyn Shelton Lee
 [Dr. Herbert L. Eichelberger](http://rollingout.com/2007/08/23/dr-herbert-eichelberger-the-art-of-storytelling/)
 [Dr. Herbert L. Eichelberger](http://www.cau.edu/directory/eichelberger-herbert.html)
 
+--------
+(1:00 interviews, pacing, Michael)
+(3:00 Micheal, sell more than Thriller, 100M copies)
+(5:00 car crash)
+(6:30 black women, carnage, Lysistrata)
+(9:00 Have you seen the film? Lesson #1: You cannot step up to a mic and ask a question on a subject you don't know about. You're playing yourself. If you are to critique anything, you must have some knowledge of what you talking about. So to read something on Twitter...)   
+(12:00 Nick Cannon, rappers, never shot anybody, no bodies on him, acting, DeNiro didn't go on killing spree, artists get criticized)
+(14:40 don't like word controversy, stories I want to tell, I can't do Speilberg, what interests me, getting people to talk, self-genocide Chicago, Chi-Raq film Jun1-July9 356 murdered)
+(18:30 MJ film order: way record co. wanted, anniversary) 
+(19:30 choking Radio Raheem and Eric Garner)
+(21:00 Fort Green, gentrified, parents bought brownstone, can't afford: 3-4 generations, can't come in like Christopher Columbus)
+
+--------
+(25:00 How did you get to the place where you wanted to direct and produce? )
+(25:30 Never use the work "assume." People get fired in the film industry using that word. "Well, I assumed, I though that..." Nope. Delte that word: assume. Delete it.)
