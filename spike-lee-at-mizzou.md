@@ -35,7 +35,7 @@ She said someone gave me a Super 8 camera. You can have it if you want it.
 Then I looked in the other corner of the room and there's a box. I said what in that box.
 
 She said that's the film for the camera.
-'
+
 So now I have something to do for the summer.
 
 So I spent the whole summer running around New York City filming stuff.
